@@ -4,7 +4,7 @@
 
 ### Marketing & Product Development 
 
-[New Product Development - Backpack Industry](https://drive.google.com/open?id=18TU0SVDa5lfPCENAhSKc8EwVY3rJPMAa)
+[New Product Development - Backpack Industry](https://drive.google.com/open?id=1N4Nu-i1JWoKqy74oEXQcNJbhOIZQZcJ0)
 <img src="images/dummy_thumbnail.jpg?raw=true"/>
 
 ---
